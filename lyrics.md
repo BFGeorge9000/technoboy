@@ -1,6 +1,8 @@
 [verse 1]
 ```
-#TODO: Write Verse 1
+they call him techno boy, he`s sitting staring into space
+instructing machines, man in the suit`s never seen his face
+
 ```
 
 [chorus]

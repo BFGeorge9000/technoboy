@@ -33,6 +33,23 @@ Until two become... one.
 
 [bridge]
 ```
+space
+space
+staring into space
+reading urgent emails that will put you in your place
+
+space
+space
+will it ever end
+rising up is technoboy with hacking he will win
+
+space!
+space!
+he's our guiding light!
+shining like a beacon deep into the Texas niiiiiiiight!
+```
+
+```
 you are my guidance
 you are my instrument
 you are my lighthouse

@@ -7,10 +7,10 @@ instructing machines, man in the suit`s never seen his face
 
 [chorus]
 ```
-where are you now, Techno Boy?
-what have you seen?
-what do you do?
-and what does it mean?
+where are you Techno Boy?
+what have you seen?!
+what do you want to do?
+what does it mean?!
 ```
 
 [verse 2]
